@@ -1,11 +1,7 @@
---> Sckd Profile 🇲🇽
+--> Ale.
 
-🍟 | Founder @ LavaLeaks
-🌭 | Founder @ LegacyCraft
+| Founder @ Imanity Network
 
-🥨 | Discord : ! NotSckd#0001
-🍿 | xyl.lol/ale
-
-🥟 | dsc.gg/lavaleaks
-☕ | dsc.gg/legacycraft
+| Discord : ! NotSckd#0001
+| xyl.lol/ale
 
